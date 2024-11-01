@@ -1,5 +1,4 @@
-
-
-- estudo no morelli
-- 🌱 Atualmente estou aprendendo...
-🥰
+- estudo no morelli 
+- curitiba-pr
+- 15 anos
+  
