@@ -1,6 +1,6 @@
 - estudo no morelli 
 - curitiba-pr
-- 15 anos
+- 15 anos🥰
 
 
 ![](https://media.tenor.com/2Tz8F9OSDB4AAAAi/cat-cute.gif)
